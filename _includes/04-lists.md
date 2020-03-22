@@ -1,0 +1,4 @@
+* Ski
+* Gadgets
+* Golf
+* Watches
